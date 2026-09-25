@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EmeraudeJoubert
-- 👀 I’m interested in ur mom
+- 👀 I’m interested in BIRDS
 - 🌱 I’m currently learning Game Art
 - 💞️ I’m looking to collaborate on idk ?
 - 📫 How to reach me Discord ig
