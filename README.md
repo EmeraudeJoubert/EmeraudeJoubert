@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @EmeraudeJoubert
 - 👀 I’m interested in BIRDS
 - 🌱 I’m currently learning Game Art
-- 💞️ I’m looking to collaborate on idk ?
+- 💞️ I’m looking to collaborate on games ?
 - 📫 How to reach me Discord ig
 
 <!---
